@@ -1,1 +1,1 @@
-# SUrat-DiGiAl
+# SUrat-DiGital
